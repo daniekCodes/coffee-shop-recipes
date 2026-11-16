@@ -29,4 +29,4 @@ Pour the blended coffee into a large glass.
 
 ### Step 4
 
-Step 4 is removed.
+Top with whipped cream, chocolate flakes, and caramel sauce, so delicious!
